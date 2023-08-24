@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rabenancy25
+- 👀 I’m interested in coding
+- 🌱 I’m currently stydying at SAYNA
